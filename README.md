@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mayzzt
 - 👀 I’m interested in expanding my knowledge and coding random stuff.
-- 🌱 I’m currently learning it related things.
+- 🌱 I’m currently learning IT related things.
 - 💞️ I’m looking to collaborate on nothing, currently.
 - 📫 How to reach me ...
 
